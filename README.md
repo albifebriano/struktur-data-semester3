@@ -1,0 +1,1 @@
+# strukturdata_sms3
